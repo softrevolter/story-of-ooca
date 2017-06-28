@@ -1,0 +1,43 @@
+- Eiland verkenning
+           - Noord: alleenstaand huis van de oude man
+           - Oost: Het meer en de bossen
+           - Zuid: Toren van de winter, gedeelte van het dorp
+           - West: Toren van de zomer , gedeelte van het dorp, het gebergte, huis van de wijzen
+           - Architecturale eenheid.
+- Verdieping in het dorp
+           - Het koningshuis, Laika en Lafinta
+           - Het huis van de wijzen
+           - Het huis van de uitvinding (tweeling) Koiko, Goiko
+           - Het huis van de bakker
+           - De schoenmaker
+           - De entertainern Loco
+           - De magische drankmaker
+           - De klerenmaker
+           - De vishandelaar
+           - De huisbouwer/ dakenmaker
+    - Personage x, De Wachter
+           - De bosverkenner
+           - De Zuidertoren
+           - De Noordertoren
+- Het dagelijkse leven
+           - De vliegende visvangst, Kori Koli
+           - Het samen eten
+           - De feesten
+           - De School
+           - De gewoontes
+           - Entertainment / verveling
+- Ontwikkeling van het verhaal
+           - Laika en haar dagelijkse routine (hierin kunnen de verschillende kenmerken van het eiland terecht komen)
+           - Het sterven van de oma
+           - Het brengen van de nieuwe schoenen, deze schoenen zullen speciale schoenen zijn van een bepaalde ordre
+           - De hevige storm
+           - De bliksemschicht en het rode meer
+           - De onbekende man
+           - De vliegende vissen zijn te laat
+           - De wijzen zijn in de war
+           - De onbekende man komt ten hulp
+           - Laika verdiept zich in het mysterie
+           - Complot van het eiland (en van haar opa)
+           - Ontdekking van het geheim
+           - Uitwerking complot
+           - Start van het avontuur
